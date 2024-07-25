@@ -1,4 +1,3 @@
-Aki's Profile💫
 
 🌟 CS Student @ ICBT Kandy
 
