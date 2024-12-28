@@ -5,4 +5,3 @@
 
 🔭 Focus: Data Science, AI
 
-🚀 Current Project: Info System in C++      
